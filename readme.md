@@ -1,0 +1,1 @@
+Data for my article about galls of Cynips quercusfolii in Kstovskiy region
